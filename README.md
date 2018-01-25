@@ -1,0 +1,2 @@
+# smkgeoinformatika
+SMK GEO INFORMATIKA
